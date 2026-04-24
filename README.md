@@ -41,4 +41,4 @@ I am a Data Management professional with nearly a decade of experience in govern
 ---
 
 📫 **How to reach me:**
-[LinkedIn](www.linkedin.com/in/anarocharibeiro) | [Email](mailto:ana.ribeiro@outlook.com)
+[LinkedIn](http://www.linkedin.com/in/anarocharibeiro) | [Email](mailto:ana.ribeiro@outlook.com)
